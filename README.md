@@ -19,3 +19,7 @@ Under the Golden Bridgϵ
 
 ![dreamof6yrs](https://user-images.githubusercontent.com/90988117/140313442-b8d8e304-3519-4b76-a54f-b2a857b1e004.jpg)
 By a bok.
+
+![nierfullauto](https://user-images.githubusercontent.com/90988117/140313924-060624f8-2df8-491a-903f-c45215893d9c.jpg)
+
+Full-auto.
