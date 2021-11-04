@@ -1,3 +1,3 @@
-![favposeis2standtall](https://user-images.githubusercontent.com/90988117/138847337-c3a242a3-303e-4c76-a2b9-0929a61a7510.jpg)
+![оченьтяжело](https://user-images.githubusercontent.com/90988117/140271572-6ac4f7d6-0414-48c2-9a35-4844e589c034.jpg)
 
-||Sadistic rich girl kidnaps a drunk delinquent and mutilates him|| Уммм, senQ.
+ꚒяжелꙌ, ꚆяжелꙬ плыть в серной кизлоде.
