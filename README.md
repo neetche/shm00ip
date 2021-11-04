@@ -13,3 +13,9 @@ Good Bob.
 ![nailedit](https://user-images.githubusercontent.com/90988117/140272404-ee92ea50-ccd4-4f2e-b587-ed6389dee606.jpg)
 
 Ꙟ2[11]
+
+![thesefeelz](https://user-images.githubusercontent.com/90988117/140313101-e2bae939-f881-493b-824a-217e65b57cd1.jpg)
+Under the Golden Bridgϵ
+
+![dreamof6yrs](https://user-images.githubusercontent.com/90988117/140313442-b8d8e304-3519-4b76-a54f-b2a857b1e004.jpg)
+By a bok.
