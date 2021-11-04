@@ -2,8 +2,14 @@
 
 ꚒяжелꙌ, ꚆяжелꙬ плыть в серной кизлоде.
 
+![harakiri](https://user-images.githubusercontent.com/90988117/140272798-3ca70bcb-32ff-40f9-aa5a-520436f03fc0.jpg)
+
+Đ∃⟙ℍby imouto.
+
 ![009](https://user-images.githubusercontent.com/90988117/140272367-f70a4357-5515-401b-82ae-6344192c3077.jpg)
+
 Good Bob.
 
 ![nailedit](https://user-images.githubusercontent.com/90988117/140272404-ee92ea50-ccd4-4f2e-b587-ed6389dee606.jpg)
+
 Ꙟ2[11]
