@@ -23,3 +23,11 @@ By a bok.
 ![nierfullauto](https://user-images.githubusercontent.com/90988117/140313924-060624f8-2df8-491a-903f-c45215893d9c.jpg)
 
 Full-auto.
+
+![czin-nokungfoo](https://user-images.githubusercontent.com/90988117/140365121-2413ba6a-64ad-4d7b-93b2-759643801f77.jpg)
+ADC AH, beauty.
+
+![yuka-tan](https://user-images.githubusercontent.com/90988117/140365824-be87332b-4ae4-43e4-92aa-ca709dc4d722.jpg)
+:⊲ of WOW.
+
+---Adrenalne(ED)
