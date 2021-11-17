@@ -31,3 +31,25 @@ ADC AH, beauty.
 :⊲ of WOW.
 
 ---Adrenalne(ED)
+---Setsugetsuka(cons)
+![killerins2](https://user-images.githubusercontent.com/90988117/142158264-602f97c1-973e-418e-a928-d95e2fa746f5.png)
+If you 2! have an imoto, uve 2 b.come one.
+
+![oldersister1](https://user-images.githubusercontent.com/90988117/142158351-4b57929c-f1b9-46a2-adc2-9a6b4842e626.jpg)
+Two sides of the same coin.
+
+![itsnormlinhouseholdswithimotos](https://user-images.githubusercontent.com/90988117/142158459-0a81da15-0fa6-41d0-8aef-eaab885266ad.jpg)
+Come on.
+
+![justdowhatuneed2do](https://user-images.githubusercontent.com/90988117/142158510-8930f38d-a70c-4759-89a3-150e66f4c2ae.jpg)
+Do what you need 22.
+
+![dontsayittwice](https://user-images.githubusercontent.com/90988117/142158563-98769547-375f-41be-8850-525d73481a4d.jpg)
+Sometimes WINEs about bing siscon, but does his zob.
+
+![ee256f99bfd49b836e0c32073089be276aa1bcdb_229796_736_1130](https://user-images.githubusercontent.com/90988117/142158909-2a3d08ee-89a1-4534-91e2-787ffec42428.jpg)
+♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫
+
+
+
+
