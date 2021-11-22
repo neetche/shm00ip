@@ -50,6 +50,17 @@ Sometimes WINEs about bing siscon, but does his zob.
 ![ee256f99bfd49b836e0c32073089be276aa1bcdb_229796_736_1130](https://user-images.githubusercontent.com/90988117/142158909-2a3d08ee-89a1-4534-91e2-787ffec42428.jpg)
 ♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫
 
+reset1
+![reset1](https://user-images.githubusercontent.com/90988117/142876274-800c3465-bd9e-46bc-843c-72c31fb7f5b4.jpg)
+
+reset2
+![reset2](https://user-images.githubusercontent.com/90988117/142876372-75d2986d-af9a-4072-bfb9-819e0327b543.jpg)
+
+daisetsu or densetsu imoto
+![reset3](https://user-images.githubusercontent.com/90988117/142876462-9ab7e4f4-d54f-4b2f-adf6-84f9a082a3c5.jpg)
+
+Blood transfusion => no mo day resets | kissing O'nii-chan is fine.
+![i_nee_2_no(ya)](https://user-images.githubusercontent.com/90988117/142876544-960a25e7-0b87-4ad1-9e30-8dd610fbd4b9.jpg)
 
 
 
