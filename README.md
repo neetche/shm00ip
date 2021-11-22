@@ -80,3 +80,19 @@ Shiburin appears
 <!-- Locked & LOADed --
 ![pantyshot-0666](https://user-images.githubusercontent.com/90988117/142916372-7ee4c621-0901-40ad-9c74-b8153f0b4ccf.jpg)
 -- -->
+
+guess teh hidden semmice
+![siren_of_the_silent_hill](https://user-images.githubusercontent.com/90988117/142918006-59e51e0e-2388-43eb-abfb-50f1fa0b4589.jpg)
+
+Rx.wait() semmice
+![human_creatures](https://user-images.githubusercontent.com/90988117/142918271-c845ac11-665f-4355-80f1-13be70a8fddc.jpg)
+
+Nope, gotta vsave() 4 H1/301
+![pantyshot-01010](https://user-images.githubusercontent.com/90988117/142918478-f64ff676-20cc-437f-b50a-184d4180c8d8.jpg)
+
+.it['s] new yr
+![??st time it.scored so low](https://user-images.githubusercontent.com/90988117/142919175-6b9dd88c-213f-40bf-bdc5-8d59a4ae98ac.jpg)
+
+<!--
+![\ur subtittles_r_visibl](https://user-images.githubusercontent.com/90988117/142918586-55266107-4753-49ff-9a44-5d708e4ea11c.jpg)
+-->
