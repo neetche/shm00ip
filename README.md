@@ -62,5 +62,21 @@ daisetsu or densetsu imoto
 Blood transfusion => no mo day resets | kissing O'nii-chan is fine.
 ![i_nee_2_no(ya)](https://user-images.githubusercontent.com/90988117/142876544-960a25e7-0b87-4ad1-9e30-8dd610fbd4b9.jpg)
 
+panchiran1
+![incoming_panchira](https://user-images.githubusercontent.com/90988117/142914280-9321ae10-d169-4903-8778-16c3690878e1.jpg)
 
+panchiran2
+![pantyshot-0054](https://user-images.githubusercontent.com/90988117/142914700-191d85fc-b46f-49b4-ad06-a41f3010ece3.jpg)
 
+moonlightling ChIII
+![pantyshot-0443](https://user-images.githubusercontent.com/90988117/142914935-8693ebc7-d152-4598-87bd-becce9e8e4e8.jpg)
+
+Wasted night
+![pantyshot-0444](https://user-images.githubusercontent.com/90988117/142916254-a9511e23-b140-4cb8-8d83-4e8461211b17.jpg)
+
+Shiburin appears
+![pantyshot-0777](https://user-images.githubusercontent.com/90988117/142916521-f14a5787-db10-41f1-9c13-1be31b5deef3.jpg)
+
+<!-- Locked & LOADed --
+![pantyshot-0666](https://user-images.githubusercontent.com/90988117/142916372-7ee4c621-0901-40ad-9c74-b8153f0b4ccf.jpg)
+-- -->
